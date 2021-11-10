@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+The world is changing and it’s changing fast, new innovations arrive every day, one better than the other, new technologies making older ones obsolete in a matter of days and in this changing world an individual is nothing by himself. Only by becoming a part of a larger organization can an individual thrive in this world. Being a part of something greater than oneself is something I consider to be noble. I want to be an inventor and innovator in the field of engineering by working in collaboration with others.
 <!--
 **engkashif/engkashif** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
